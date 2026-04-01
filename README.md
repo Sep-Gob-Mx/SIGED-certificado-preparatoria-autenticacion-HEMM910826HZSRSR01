@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HEMM910826HZSRSR01
+HEMM910826HZSRSR01
